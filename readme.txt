@@ -1,1 +1,1 @@
-oki oki
+b bye
